@@ -1,1 +1,1 @@
-# Tom Meyers
+# Tom Meyers MBA, CompSci
